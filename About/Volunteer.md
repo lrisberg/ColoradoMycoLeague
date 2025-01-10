@@ -6,8 +6,8 @@ We are currently looking for volunteers to:
 
 ~Head up foraging expeditions into Colorado’s wild.
 
-~Teach mycology related workshops, for example, but not limited to: growing mushrooms; cooking mushrooms; making extracts; brewing with yeasts; and even crafting with fungi.
+~Teach mycology-related workshops (for example: growing mushrooms, cooking mushrooms, making extracts, brewing with yeasts, crafting with fungi, etc.).
 
-If you can bring your knowledge and desire to help others, we can work with you to organize and sponsor personalized workshops or classes geared toward your specific mycology niche. Whatever that may be.
+If you have the knowledge and desire to help others, we can work with you to organize and sponsor personalized workshops or classes geared toward your specific mycology niche.
 
 Contact Us to Inquire
