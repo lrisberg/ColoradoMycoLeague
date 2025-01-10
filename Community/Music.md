@@ -1,5 +1,5 @@
 MUSIC
 
-This themed music playlist has been curated for your personal use.
+We curated this themed music playlist for your personal use.
 
-You must be logged into spotify to hear the whole songs.
+You must be logged into Spotify to hear the complete songs.
