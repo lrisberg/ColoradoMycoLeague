@@ -4,7 +4,7 @@ Public Services
 
 Charitable Support
 
-To provide relief to the poor, distressed, and underprivileged, The Colorado Myco League offers free coaching and/or supplements to individuals who qualify for help.
+The Colorado Myco League offers free coaching and/or supplements to the poor, distressed, and underprivileged who qualify for help.
 
 Contact Us For Help
 
@@ -16,13 +16,13 @@ Join Our Discord
 
 Monthly Mycology Meetup Events
 
-Everyone is welcome to join us for learning and/or sharing their unique perspective on mycology. We encourage you to share mushroom themed gifts and network with novice and expert mycologists alike. Find all our sponsored events on the Events page.
+Everyone is welcome to join us for learning and/or sharing their unique perspective on mycology. We encourage you to share mushroom themed gifts and network with novice and expert mycologists alike. Discover all our sponsored events on the Events page.
 
 Events Page
 
 Wild Mushroom Foraging & Identification
 
-We organize educational forays into nature to find and identify mushrooms in their natural habitat. Mushroom foraging books specific to Colorado are excellent companions on these trips. We may not know every mushroom out there by heart, but we certainly know the steps needed to get them identified correctly. If we can’t figure it out together, we will help you get them in front of someone who can. Stay tuned for these events in our Discord server and Events page.
+We organize educational forays into nature to find and identify mushrooms in their natural habitat. Mushroom foraging books specific to Colorado are excellent companions on these trips. We may not know every mushroom out there by heart, but we certainly know the steps needed to get them identified correctly. If we can’t figure it out together, we will connect you with someone who can. Stay tuned for these events in our Discord server and Events page.
 
 Events Page
 

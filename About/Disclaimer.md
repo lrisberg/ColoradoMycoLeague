@@ -2,7 +2,7 @@ DISCLAIMER
 
 LET IT BE KNOWN
 
-Colorado law defines non-synthetic psilocybin and psilocin in any form as “Natural Medicine.”
+Colorado law defines “Natural Medicine” as non-synthetic psilocybin and psilocin in any form.
 
 The Colorado Myco League is not and does not employ a licensed natural medicine facilitator.
 
@@ -14,6 +14,6 @@ A donation to The Colorado Myco League does not guarantee or provide access to n
 
 If a representative of The Colorado Myco League provides natural medicine to a person over the age of 21, they must provide it without compensation. 
 
-It is entirely up to the discretion of the individual representing The Colorado Myco League when and how much natural medicine to provide to any individual over the age of 21 for personal use.
+It is entirely up to the discretion of the representative of The Colorado Myco League when and how much natural medicine to provide to any individual over the age of 21 for personal use.
 
 Representatives of The Colorado Myco League do their best to educate and be generous towards all members of the community, more so to those that have made a donation or showed a need for charitable help.

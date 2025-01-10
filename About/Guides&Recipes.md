@@ -2,7 +2,7 @@ GUIDES & RECIPES
 
 Printable How-To Guides & Recipes
 
-Enjoy these conveniently sized 4″ x 6″ recipe cards intended to give new mycologists a head start in their education. We have designed them for printing front and back on cardstock.
+Enjoy these convenient 4″ x 6″ recipe cards intended to give new mycologists a head start in their education. We designed them for printing front and back on cardstock.
 
 How To Make A Simple Mushroom Tincture At Home
 
@@ -12,9 +12,9 @@ Super Simple and Shelf Stable Lions Mane Mushroom Tincture (Downloadable PDF)
 
 Original Mushroom Recipes
 
-We believe everyone benefits from getting more mushrooms into their diet. Unfortunately, not everyone enjoys the taste of mushrooms and we totally get it. These mushroom recipes are as tasty, customizable, and easy to follow as possible. If a recipe doesn’t specify a specific mushroom, you can likely use any variety of mushroom.
+We believe everyone benefits from getting more mushrooms into their diet. Unfortunately, not everyone enjoys the taste of mushrooms and we totally get it. These mushroom recipes are as tasty, customizable, and straightforward as possible. If a recipe doesn’t specify a specific mushroom, you can likely use any variety of mushroom.
 
-The downloadable recipe PDFs are formatted for printing on 4″ x 6″ cards. The black and white versions are for printing on a thermal label printer.
+These downloadable recipe PDFs are formatted for printing on 4″ x 6″ cards. The black and white versions are for printing on a thermal label printer.
 
 Nana Ginger’s Spice Cookies
 

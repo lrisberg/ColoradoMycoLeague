@@ -4,7 +4,7 @@ Want to Volunteer?
 
 We are currently looking for volunteers to:
 
-~Head up foraging expeditions into Colorado’s wild.
+~Lead foraging expeditions into Colorado’s wild.
 
 ~Teach mycology-related workshops (for example: growing mushrooms, cooking mushrooms, making extracts, brewing with yeasts, crafting with fungi, etc.).
 
