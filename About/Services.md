@@ -4,36 +4,36 @@ Public Services
 
 Charitable Support
 
-In an effort to provide relief to the poor, the distressed and the underpriviledged; The Colorado Myco League offers free coaching and/or supplements to individuals that can demonstrate they need and qualify for help.
+To provide relief to the poor, distressed, and underprivileged, The Colorado Myco League offers free coaching and/or supplements to individuals who qualify for help.
 
 Contact Us For Help
 
-Live Mycology Oriented Chat Platform
+Live Mycology Chat Platform
 
-The heart of The Colorado Myco League has been on Discord since 2022. This has been the best place to stay informed and even get customized alerts for local events, giveaways, groundbreaking research & news in mycology, getting assistance with mushroom identification & safety, share cultivating techniques, network with experienced mycologists, swap recipes and discuss anything fungi.
+The heart of The Colorado Myco League has been on Discord since 2022. This is the best place to stay informed about local events, giveaways, and groundbreaking research in mycology. Join us to network with experienced mycologists, share cultivating techniques, swap recipes, learn mushroom identification & safety, and discuss anything fungi.
 
 Join Our Discord
 
 Monthly Mycology Meetup Events
 
-Everyone is welcome to join us for learning and/or sharing their unique perspective on mycology. Participants are encouraged to share mushroom themed gifts and network with new and old mycologists alike. Our events calendar is an aggregation of all of The Colorado Myco League’s sponsored events.
+Everyone is welcome to join us for learning and/or sharing their unique perspective on mycology. We encourage you to share mushroom themed gifts and network with novice and expert mycologists alike. Find all our sponsored events on the Events page.
 
 Events Page
 
 Wild Mushroom Foraging & Identification
 
-Starting in 2024, we have begun to plan and organize educational forays into nature to find and identify mushrooms in their natural habitat. Mushroom foraging books specific to Colorado are recommended companions on these trips. We don’t claim to know every mushroom out there by heart but we certainly know the steps needed to get them identified correctly. If we can’t figure it out together, we will help you get them in front of someone who can. These events will mostly be organized in our Discord server and will also be listed on our events page.
+We organize educational forays into nature to find and identify mushrooms in their natural habitat. Mushroom foraging books specific to Colorado are excellent companions on these trips. We may not know every mushroom out there by heart, but we certainly know the steps needed to get them identified correctly. If we can’t figure it out together, we will help you get them in front of someone who can. Stay tuned for these events in our Discord server and Events page.
 
 Events Page
 
 Mycology Classes & Workshops
 
-Learn the basics of mycology and cultivation by participating in seminars designed to help you get started on your mycological journey. Classes will be announced in the Discord first and then listed on our events page shortly thereafter. Space is limited at these events and RSVP is required for attendance. Sign up early to guarantee yourself a spot.
+Learn the basics of mycology and cultivation by participating in seminars designed to get you started on your mycological journey. Limited attendance is available, so please RSVP. We announce classes in Discord first and then our Events page shortly thereafter. Sign up early to secure your spot!
 
 Events Page
 
 Printable ‘How To’ Guides For Download
 
-We will be publishing our own guides on how to do many things in mycology. For example but not limited to: How to Make Your Own Shelf Stable Tincture at Home, Growing Mushrooms in a Shoebox on a Shoestring Budget, Breeding Mushrooms for Beginners: The Right Way vs the Easy Way. Guides will be released as they are completed.
+We regularly publish our own guides on various mycology projects. Examples include: How to Make Your Own Shelf Stable Tincture at Home, Growing Mushrooms in a Shoebox on a Shoestring Budget, Breeding Mushrooms for Beginners: The Right Way vs the Easy Way. We will release more guides as we complete them.
 
 Printable Guides
