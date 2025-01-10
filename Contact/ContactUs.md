@@ -22,4 +22,4 @@ Discord
 
 discord.gg/vYrxnNUzZS
 
-Any unsolicited messages regarding SEO or marketing will likely be ignored. It’s nothing personal.
+We will probably ignore any unsolicited messages regarding SEO or marketing. It’s nothing personal.
